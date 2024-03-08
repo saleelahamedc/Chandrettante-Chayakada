@@ -6,10 +6,4 @@ Located in karanthoor
 
 Visited this month
 
-With Firoska Shabeer And Erfan
-
-abcd
-
-efgh
-
-lmnopqrst
+With Firoska, Shabeer And Erfan
